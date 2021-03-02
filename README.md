@@ -1,1 +1,1 @@
-# [community-discord](https://community-discord.de)
+# [community-discord.de](https://community-discord.de)
